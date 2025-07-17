@@ -12,7 +12,7 @@
   
 - 📫 Reach me at: **rithishreddi18@gmail.com**
   
-- 📄 [Check out my resume](https://drive.google.com/file/d/10m0GDVdEZ_GfceCf2WnaLz5Suao7-nW3/view?usp=sharing)
+- 📄 [Check out my resume](https://drive.google.com/file/d/11vJgUxam6d9ZDmViPhWemb5_pbfhjWDL/view?usp=sharing)
 
 
 <h3 align="left">Connect with me:</h3>
